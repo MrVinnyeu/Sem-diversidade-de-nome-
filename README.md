@@ -1,1 +1,0 @@
-# Sem-diversidade-de-nome-
